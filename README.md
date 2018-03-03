@@ -1,0 +1,1 @@
+Bitirme Tezimin özet anlatımı eklenmiştir.
